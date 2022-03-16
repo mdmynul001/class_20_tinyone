@@ -1,1 +1,1 @@
-# class_20_tinyone
+https://mdmynul001.github.io/class_20_tinyone/
